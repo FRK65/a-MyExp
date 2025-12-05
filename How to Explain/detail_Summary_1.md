@@ -1,4 +1,4 @@
-Here is a **simple, clear, to-the-point conclusion**:
+**simple, clear, to-the-point conclusion**:
 
 ---
 
